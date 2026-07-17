@@ -1,0 +1,2 @@
+# AI-THANH-HOA-DAY-GIAO-TIEP-TU-CON-SO-0--FULL
+跟清华老师学习汉语从零开始
